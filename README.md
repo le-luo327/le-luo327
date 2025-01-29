@@ -2,7 +2,7 @@
 - I’m currently a first-year MPH student in Biostatistics at New York University
 - I got my Bachelor degree of Science in Statistics at McGill University in Canada
 - How to reach me:
-  E-mail: ll5751@nyu.edu / anjioluole327@outlook.com
+  E-mail: ll5751@nyu.edu / le327luo@gmail.com
 - ⚡ Fun fact: I'm also a food blogger
 
 <!---
